@@ -1,2 +1,2 @@
 # meus-projetos
-A indrodução da minha tragetória
+A indrodução da minha trajetória
